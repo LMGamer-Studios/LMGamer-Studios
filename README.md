@@ -1,0 +1,4 @@
+- 👋 Hi, We are @LMGamer Studios
+- 👀 We are and indie game developer team
+- 🌱 We are currently learning how to use UR5
+- 📫 How to reach me: Discord: LMGamer Studios.#2482
